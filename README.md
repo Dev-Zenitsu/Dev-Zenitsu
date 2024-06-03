@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Swarnava
+- 👀 I’m interested in Frontend Web Development
+- 🌱 I’m currently Trying to improve my coding skills by practicing through YouTube tutorials
+- 💞️ I’m looking to collaborate on large-scale projects that could help me nurture my skills as a novice
+- 📫 You reach me at zenitsu260208@gmail.com
+- 😄 Pronouns: Zenitsu
+- ⚡ Fun fact: U was born on 29th Feb, 2008!
